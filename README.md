@@ -1,1 +1,1 @@
-# sona-beauty-parlour
+# sona-beauty-parlour.com
